@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Marynada
+- 👀 I’m interested in learning smth new
+- 🌱 I’m currently learning IT
+- 📫 How to reach me medvedieva.marishonok@gmail.com
